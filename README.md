@@ -1,8 +1,8 @@
-Hi ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fkanpicha16012525%2Fgif%25E0%25B8%25AD%25E0%25B8%2599%25E0%25B9%2580%25E0%25B8%25A1%25E0%25B8%25B0%2F&psig=AOvVaw1dHXIDrhIFStjCI--9-3E9&ust=1737304775795000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCOj8juLa_4oDFQAAAAAdAAAAABAE)My name is Kodfairz.
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Kodfairz.
 =================================================================================================================================
 
 \[ About Me \]
-
+--------------
 
 Hi, I'm Kodfairz! As a developer with limited skills, I may not be a coding expert, but I have many exciting project ideas that I’m eager to bring to life!
 
